@@ -16,5 +16,4 @@ On desk at Boosted Boards HQ
 
 Courtesy of [@boostedboards](https://twitter.com/BoostedBoards)
 
-How It's Made Video
-Coming soon on [JT Woodworks YouTube Channel](https://www.youtube.com/channel/UCxmDVRdEjmEsIEoOXLQ_cFQ)
+How It's Made [Video](https://www.youtube.com/watch?v=L1L8BGaNbN0)
